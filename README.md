@@ -3,7 +3,7 @@
 
 - 🌱 Atualmente estou aprendendo cursos
 - 🤔 Estou procurando ajuda com alura
-- 📫 Como entrar em contato comigo: @jr_zl041 email:denilson.stopira.junior@escola.pr.gov.br
+- 📫 Como entrar em contato comigo: @jr_zl_ email:denilson.stopira.junior@escola.pr.gov.br
 - 😄 Pronomes: ele/dele
 - ⚡ Curiosidade: tenho buceta e sou traveco
 
